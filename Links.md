@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 17:30 IR
+- 🎬 [تمرین_عضلات_پا_در_خانه_(بدون_وسیله).mp4](https://github.com/abcar-prog/sandbox-ar/raw/main/dl/%D8%AA%D9%85%D8%B1%DB%8C%D9%86_%D8%B9%D8%B6%D9%84%D8%A7%D8%AA_%D9%BE%D8%A7_%D8%AF%D8%B1_%D8%AE%D8%A7%D9%86%D9%87_%28%D8%A8%D8%AF%D9%88%D9%86_%D9%88%D8%B3%DB%8C%D9%84%D9%87%29.mp4) `31.3MB`
+
+---
+
+
 ### 📅 2026-05-13 17:26 IR
 - 🎬 [٨_دقیقه_تمرین_عضلات_شکم_در_خانه.mp4](https://github.com/abcar-prog/sandbox-ar/raw/main/dl/%D9%A8_%D8%AF%D9%82%DB%8C%D9%82%D9%87_%D8%AA%D9%85%D8%B1%DB%8C%D9%86_%D8%B9%D8%B6%D9%84%D8%A7%D8%AA_%D8%B4%DA%A9%D9%85_%D8%AF%D8%B1_%D8%AE%D8%A7%D9%86%D9%87.mp4) `29.1MB`
 
