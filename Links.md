@@ -2,10 +2,6 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
-### 📅 2026-05-13 13:17 IR
-- 🎬 [ph56cb2faf4873d.mp4](https://github.com/abcar-prog/sandbox-ar/raw/main/dl/ph56cb2faf4873d.mp4) `31.7MB`
-
----
 
 
 ### 📅 2026-05-13 12:17 IR
