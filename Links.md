@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 17:20 IR
+- 🎬 [٨_دقیقه_تمرین_بازو_توی_خونه_(بدون_وسیله).mp4](https://github.com/abcar-prog/sandbox-ar/raw/main/dl/%D9%A8_%D8%AF%D9%82%DB%8C%D9%82%D9%87_%D8%AA%D9%85%D8%B1%DB%8C%D9%86_%D8%A8%D8%A7%D8%B2%D9%88_%D8%AA%D9%88%DB%8C_%D8%AE%D9%88%D9%86%D9%87_%28%D8%A8%D8%AF%D9%88%D9%86_%D9%88%D8%B3%DB%8C%D9%84%D9%87%29.mp4) `22.2MB`
+
+---
+
+
 ### 📅 2026-05-13 17:18 IR
 - 🎬 [چگونه_عضلات_سرشانه_را_در_خانه_تمرین_بدهیم؟.mp4](https://github.com/abcar-prog/sandbox-ar/raw/main/dl/%DA%86%DA%AF%D9%88%D9%86%D9%87_%D8%B9%D8%B6%D9%84%D8%A7%D8%AA_%D8%B3%D8%B1%D8%B4%D8%A7%D9%86%D9%87_%D8%B1%D8%A7_%D8%AF%D8%B1_%D8%AE%D8%A7%D9%86%D9%87_%D8%AA%D9%85%D8%B1%DB%8C%D9%86_%D8%A8%D8%AF%D9%87%DB%8C%D9%85%D8%9F.mp4) `20.8MB`
 
